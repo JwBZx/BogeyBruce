@@ -1,0 +1,2 @@
+# BogeyBruce
+Welcome to BogeyBruce! This is a GitHub Repository and a Project dedicated to our amazing dog: Bogey Bruce (2001-October 10th, 2015)! It is just going to be a celebration of the amazing life that he lived and of all the joy that he brought to everybody he met! If you want to learn more, you can go to bogeybruce.weebly.com! Thank You for checking out this project and God Bless! [R.I.P. Bogey Bruce 2001-2015]
